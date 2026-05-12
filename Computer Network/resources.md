@@ -1,0 +1,1 @@
+https://github.com/anxkhn/LastMinuteNotes/blob/main/CN.md
